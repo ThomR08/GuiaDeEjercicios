@@ -1,3 +1,5 @@
 # Ejercicio Boxeo
 
 ## Descripción
+
+## Beneficios
