@@ -1,3 +1,5 @@
 # Ejercicio Cardio
 
 ## Descripción
+
+## Beneficios
