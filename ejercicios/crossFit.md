@@ -1,3 +1,5 @@
 # Ejercicio CrossFit
 
 ## Descripción
+
+## Beneficios
