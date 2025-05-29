@@ -15,3 +15,16 @@ Incorporar el estiramiento en tu rutina diaria trae múltiples beneficios. Entre
 - La práctica regular del estiramiento
 - La práctica regular del estiramiento contribuye a la reducción del estrés y la tensión muscular (Getty Images)
 - Consejos para una práctica de estiramiento efectiva
+
+## Instrucciones
+#### Técnicas y ejemplos de estiramiento estático
+El estiramiento estático es el método más común y tradicional. Un ejemplo clásico es el estiramiento de la pared para la pantorrilla:
+
+- Estiramiento de pared: Se debe colocar de uno a dos pies de distancia de una pared, con el pie derecho hacia adelante y el pie izquierdo hacia atrás. Luego apoyar las manos en la pared para obtener soporte. Después mantener el talón del pie trasero en el suelo y doblar la rodilla delantera, sintiendo el estiramiento en la pantorrilla. Por último mantener esta posición durante 30 segundos a un minuto y luego cambia de lado.
+Este tipo de estiramiento es especialmente útil después de correr o caminar, cuando los músculos ya están calientes y más receptivos al estiramiento prolongado. Ayuda a aumentar el rango de movimiento y a reducir la rigidez muscular.
+
+#### Técnicas y ejemplos de estiramiento dinámico
+El estiramiento dinámico, por su parte, prepara el cuerpo para la actividad física al aumentar gradualmente la temperatura muscular y mejorar la elasticidad. Un ejemplo eficaz es el balanceo de piernas:
+
+- Balanceo de piernas: Se necesita parar perpendicular a una pared y colocar una mano contra la pared para mantener el equilibrio. Luego balancear la pierna contraria hacia adelante y hacia atrás, aumentando gradualmente el rango de movimiento. Por último repetir durante 30 segundos a un minuto y luego cambia de pierna.
+Este tipo de estiramiento es ideal antes de actividades como correr o practicar deportes, ya que ayuda a aumentar la circulación y a calentar los músculos, reduciendo así el riesgo de lesiones.
