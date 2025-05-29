@@ -159,3 +159,14 @@ El más sencillo, sin duda. Pero mejor que lo dejes para el final.
 Cómo hacerla: acuéstate boca arriba con las piernas extendidas y los brazos relajados a cada lado. Respira profundamente y relájate. Esta postura se utiliza sobre todo al final de la clase, para realizar la relajación.
 
 Beneficios: conectamos nuestro cuerpo y mente, sentimos todos nuestros músculos y entramos en estado de reposo.
+
+## Consejos
+- Si es la primera vez que vas a hacer yoga acude a un centro donde haya profesorado formado que pueda orientarte e iniciarte en la práctica. Intentar hacerlo con un vídeo, sin nadie que te pueda corregir si no tienes la postura correcta puede exponerte a lesiones.
+- Elige tu estilo. Hay diferentes estilos de yoga: unos se centran más en el aspecto físico, otros en el espiritual o psicológico, otros combinan ambos; hay clases orientadas a niños o a mayores; hay centros que tienen sesiones más lentas o más rápidas, con distintos niveles de dificultad... Ten en cuenta tus preferencias, tu tiempo disponible, tu presupuesto,  tu salud y condición física. Valora también la formación del profesorado y su experiencia, las condiciones del local donde se realice.
+- Avanza de forma gradual, con comodidad y seguridad. Las posturas y movimientos pueden ser incómodos, pero no deberían ser dolorosos. 
+- Respeta tu cuerpo, tus capacidades. No intentes hacer las posturas más difíciles el primer día. Inténtalo cuando estés seguro de que puedes hacerlas. Y mientras tanto, pregunta a tu profesor de yoga. Seguro que te puede sugerir modificaciones o variaciones a la mayoría de las posturas.
+- El dolor es un aviso de que no debes forzar tanto o de que no debes seguir. Y si el dolor va a más, es momento de cesar la actividad. En ese caso consulta con tu médico, sobre todo si además de dolor, notas parestesias (hormigueo y adormecimiento) u otras alteraciones neurológicas o musculoesqueléticas. 
+- Mantén una correcta hidratación durante la sesión de yoga, sobre todo cuando la practiques a temperaturas elevadas. Si hace mucho calor, procura beber algo de agua antes, durante y después de la clase de yoga.
+- Utiliza ropa ligera, cómoda y transpirable. Muchas personas utilizan ropa impermeable que impide la transpiración con el argumento de perder peso. El peso se pierde, pero exclusivamente de agua, con lo que el riesgo de deshidratación aumenta. Además, el cansancio llegará mucho antes. Es una práctica que se debería evitar.
+- Evita comer justo antes de hacer la actividad. Si has hecho una comida copiosa, deja pasar al menos 1 o 2 horas antes de ir a la clase de yoga.
+- Practica y disfrútalo. Como con cualquier actividad física, cuanto más practiques el yoga, siempre que sea de forma segura, menor será el riesgo de lesiones o molestias. 
