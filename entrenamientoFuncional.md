@@ -101,3 +101,18 @@ Dentro de los ejercicios funcionales, hay unos que son los más utilizados y eso
 4. Regreso a la posición inicial: Salta nuevamente y, al mismo tiempo, cierra las piernas mientras bajas los brazos de vuelta a los lados del cuerpo.
 
 5. Repetición: Continúa alternando entre abrir y cerrar las piernas y los brazos en un movimiento fluido y controlado. Puedes realizar el ejercicio a un ritmo que te resulte cómodo, aumentando la velocidad a medida que te sientas más seguro.
+
+## Consejos
+- No olvides un pequeño calentamiento con ejercicios amplios de movilidad, sobre todo en columna vertebral y cintura escapular.
+
+- No todo es cuestión de fuerza y sufrimiento, en determinados ejercicios es importante la el control postular.
+
+- El estiramiento es fundamental, realiza estiramientos suaves entre series, y dedica algo de tiempo al final de cada sesión de entrenamiento para soltar los músculos y favorecer su recuperación.
+
+- Controla la fase excéntrica( a favor de la gravedad o frenada del movimiento en si),sobre todo en movimientos de velocidad y fuerza.
+
+- Intenta realizar los ejercicios de fuerza cuando no estés fatigado. Entrenar estos ejercicios después de una sesión de entrenamiento intensa de trabajo cardiovascular no es lo recomendado.
+
+- Visualiza los músculos implicados, presta atención a las posiciones de tu cuerpo y donde localizas el efecto del ejercicio. Lo mas concentrado posible en tu esquema corporal.
+
+- Mantén un orden en tu entrenamiento, estructura tus sesiones,con micro-ciclos y temporadas.Aumenta la dificultada de forma progresiva.
