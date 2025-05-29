@@ -5,3 +5,5 @@
 ## Beneficios
 
 ## Instrucciones
+
+## Consejos
