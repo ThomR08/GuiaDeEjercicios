@@ -22,3 +22,22 @@ Este ejercicio ayuda a activar los músculos abdominales y a mejorar la resisten
 Al levantar la cadera hacia arriba mientras mantienes los hombros en el suelo, trabajas en la estabilidad del núcleo y la movilidad de la columna vertebral.
 
 3. La posición del gato-vaca: La posición del gato-vaca es excelente para mejorar la flexibilidad de la columna vertebral y fortalecer los músculos profundos del abdomen. Al arquear y redondear la espalda de forma controlada, se trabaja en la movilidad y la fuerza de la zona lumbar.
+
+## Consejos
+Al comenzar tu práctica de Pilates, es importante escuchar a tu cuerpo y respetar tus límites.
+
+No te fuerces a hacer movimientos que te resulten incómodos o dolorosos.
+
+A medida que vayas mejorando, podrás progresar a ejercicios más desafiantes y complejos.
+
+Además, es recomendable seguir tutoriales o clases en línea de Pilates para principiantes, que te brindarán una guía visual y explicaciones detalladas de los ejercicios.
+
+Seguir las clases de pilates con buddyfit es tu mejor solución: con instructores expertos y clases adaptas a todos los niveles, puedes aprendere cada movimiento de forma correcta.
+‍
+Recuerda que, en el pilates, es fundamental mantener la concentración en la respiración y la conexión mente-cuerpo durante la práctica de Pilates.
+
+La respiración profunda y consciente ayuda a oxigenar los músculos y a mejorar la eficacia de los ejercicios.
+
+Otro consejo importante para los principiantes es mantener la consistencia en la práctica.
+
+Realizar sesiones de Pilates de forma regular te ayudará a construir fuerza, flexibilidad y resistencia de manera progresiva.
