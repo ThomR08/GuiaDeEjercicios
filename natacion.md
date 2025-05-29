@@ -1,3 +1,5 @@
 # Ejercicio Natación
 
 ## Descripción
+
+## Beneficios
