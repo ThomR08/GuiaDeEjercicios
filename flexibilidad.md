@@ -28,3 +28,12 @@ El estiramiento dinámico, por su parte, prepara el cuerpo para la actividad fí
 
 - Balanceo de piernas: Se necesita parar perpendicular a una pared y colocar una mano contra la pared para mantener el equilibrio. Luego balancear la pierna contraria hacia adelante y hacia atrás, aumentando gradualmente el rango de movimiento. Por último repetir durante 30 segundos a un minuto y luego cambia de pierna.
 Este tipo de estiramiento es ideal antes de actividades como correr o practicar deportes, ya que ayuda a aumentar la circulación y a calentar los músculos, reduciendo así el riesgo de lesiones.
+
+## Consejos
+Para obtener los mejores resultados del estiramiento, sigue estos consejos:
+
+- Sé constante: Incorpora el estiramiento en la rutina diaria, no solo antes y después del ejercicio.
+Escucha a tu cuerpo: No se debe forzar los estiramientos; el estiramiento debe sentirse cómodo y nunca doloroso.
+- Mantén una buena técnica: Es fundamental realizar los estiramientos de manera correcta para evitar lesiones.
+
+El estiramiento es una parte crucial de cualquier programa de ejercicios y bienestar. Al comprender y aplicar las técnicas adecuadas de estiramiento estático y dinámico, se puede mejorar la flexibilidad, prevenir lesiones y promover una mejor salud en general.
